@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning Operating Systems and Computer Networks
 - 💞️ I’m looking to collaborate on internships that are based on my intersts and abilities
 - 📫 How to reach me Mobile number:6304269799 or email:agnesteresa001@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: Good looking and a top most foodie
+- ⚡ Fun fact: Sometimes sleeping with eyes open
 
 <!---
 Davuri124/Davuri124 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
